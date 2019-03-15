@@ -12,7 +12,7 @@ https://www.linkedin.com/jobs/view/1173107858/
 ## Senior Software Developer (m/w/x)
 https://www.karriere.at/jobs/5474226
 
-
-
+  
+  
 ## Account Executive (m/w/x)
 https://www.karriere.at/jobs/5431845
